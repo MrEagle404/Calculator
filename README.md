@@ -15,3 +15,4 @@ Thanks ^_^
 segitu Aja Dulu Script Dari Saya 
 Nanti Saya Akan Membuat Script Lagi
 See You Again :)
+see you tommorow
